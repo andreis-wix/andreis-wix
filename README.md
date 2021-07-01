@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Andrei Shevtcov @ Phoenix, AZ
-- 👀 I’m interested in guitars, vocals, rock music, sound recording
-- 🌱 I’m currently learning sound mixing
+- 🎸 I’m interested in guitars, vocals, rock music, sound recording
